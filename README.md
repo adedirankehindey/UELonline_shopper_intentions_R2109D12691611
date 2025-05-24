@@ -1,1 +1,1 @@
-# UELonline_shopper_intentions_R2109D12691611
+# Enhancing Customer Satisfaction and Reducing System Failures in E-Companies by Using Integrated Digital Platforms to Improve Operational Performance.
